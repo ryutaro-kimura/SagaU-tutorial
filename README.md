@@ -7,3 +7,4 @@ Kamatsu Yuhi
 Runa Eguchi
 Tatsuya Haruguchi
 Rikuto Katayama
+Ryutaro Kimura
