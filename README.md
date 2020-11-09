@@ -6,3 +6,4 @@ Tomoki Suka
 Kamatsu Yuhi
 Runa Eguchi
 Tatsuya Haruguchi
+Rikuto Katayama
