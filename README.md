@@ -8,3 +8,4 @@ Runa Eguchi
 Tatsuya Haruguchi
 Rikuto Katayama
 Ryutaro Kimura
+Hayato oda
